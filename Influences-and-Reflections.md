@@ -1,4 +1,4 @@
-# Influences and Reflections on "SamizratPrimer"
+# Influences and Reflections
 
 ## Initial Analysis
 
